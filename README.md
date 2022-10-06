@@ -1,6 +1,3 @@
 # study
 study
-#jot gyung duk
-jot kyung suk
-whwrudtjr
-qndjddlqkdnldptjdnswlgoTtjr
+부바운석
